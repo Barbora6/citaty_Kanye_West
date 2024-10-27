@@ -1,0 +1,1 @@
+# citaty_Kanye_West
